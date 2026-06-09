@@ -1,4 +1,4 @@
-# 
+# Automatique Affinity Photo modèles pour Mac OS | Natif Affinity Photo modèles pour PC Windows. Avec export de prototype et outil fluidité — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
